@@ -1,4 +1,4 @@
-### Hi there https://www.google.co.uk/url?sa=i&url=https%3A%2F%2Fwww.pinterest.com%2Fpin%2F352266002105451635%2F&psig=AOvVaw0ziUBz3b_GT_5eAyc1m8Co&ust=1608075263560000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCPDz0qjRzu0CFQAAAAAdAAAAABAD
+### Hi there :wave:
 <!--
 **IAmNotTheLeo/IAmNotTheLeo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
